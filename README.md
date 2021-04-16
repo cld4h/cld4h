@@ -1,5 +1,14 @@
 ### Hi there 👋
 
+I'm a [LARBS](https://larbs.xyz/) user, an audience of Luke Smith.
+
+I'm also an audience of [好和絃](http://wiwikuan.com/about/).
+
+I hate smoking, but I'm ok to be friend with a smoker.
+Just don't smoke indoor, don't smoke in public, 
+don't smoke while walking and don't let me see you smoking.
+🚭🚭🚭
+
 <!--
 **cld4h/cld4h** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

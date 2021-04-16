@@ -1,12 +1,17 @@
 ### Hi there 👋
 
+[简中](README.zh.md)
+
 I'm a [LARBS](https://larbs.xyz/) user, an audience of [Luke Smith](https://lukesmith.xyz).
 
 I'm also an audience of [好和絃](http://wiwikuan.com/about/).
 
-I hate smoking, but I'm ok to be friend with a smoker.
-Just don't smoke indoor, don't smoke in public, 
-don't smoke while walking and don't let me see you smoking.
+I hate smoking, but I'm ok to be friend with a smoker, as long as you:
+* Don't smoke indoor
+* Don't smoke in public
+* Don't smoke while walking
+* Don't let me see you smoking.
+
 🚭🚭🚭
 
 <!--

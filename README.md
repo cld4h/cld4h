@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm a [LARBS](https://larbs.xyz/) user, an audience of Luke Smith.
+I'm a [LARBS](https://larbs.xyz/) user, an audience of [Luke Smith](https://lukesmith.xyz).
 
 I'm also an audience of [好和絃](http://wiwikuan.com/about/).
 

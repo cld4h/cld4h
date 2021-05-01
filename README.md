@@ -4,7 +4,7 @@
 
 I'm a [LARBS](https://larbs.xyz/) user, an audience of [Luke Smith](https://lukesmith.xyz).
 
-I'm also an audience of [好和絃](http://wiwikuan.com/about/).
+I'm also an audience of [NiceChord 好和弦](https://nicechord.com/).
 
 I hate smoking, but I'm ok to be friend with a smoker, as long as you:
 * Don't smoke indoor
